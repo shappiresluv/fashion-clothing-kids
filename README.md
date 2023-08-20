@@ -1,2 +1,2 @@
 # fashion-clothing-kids
-for the love pf fashion
+For the love of Fashion
